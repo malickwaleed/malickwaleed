@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @malickwaleed
 - 👀 I’m interested in ... IT and graphics Desigining
-- 🌱 I’m currently learning ... BBA (HR) 
+- 🌱 I’m Graduated ..... BBA (HR) 
 - 💞️ I’m looking to collaborate on ... IT
 - 📫 How to reach me ...
 
